@@ -1,0 +1,2 @@
+# premium-jaw-tong-001-jaw-tong-forging-wolf-hold-c
+Tired of losing your custom jaw tong setups mid-forge? Your wolf hold technique deserves a dedicated system, not scattered notes.  This Notion template brings order to your forging lab, from jaw tong calibration logs to wolf hold project timelines, all in one centralized workspace. No more wasted time hunting for tool specs — focus on the craft, no
